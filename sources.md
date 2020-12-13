@@ -1,3 +1,12 @@
 
-Sageo: https://webtv.univ-rouen.fr/videos/07-11-2017-142856-partie-9/
+# 2020
 
+MLIS 2020 https://www.twitch.tv/videos/783456294
+
+DAFNI Champion project presentation https://www.youtube.com/watch?v=4SAFLbTDobQ&t=5s
+
+ALIFE 2020 https://www.twitch.tv/videos/695275449
+
+# 2017
+
+Sageo: https://webtv.univ-rouen.fr/videos/07-11-2017-142856-partie-9/
