@@ -1,6 +1,8 @@
 
 # 2020
 
+CCS 2020 https://www.youtube.com/watch?v=T_OxBlORVT0
+
 MLIS 2020 https://www.twitch.tv/videos/783456294
 
 DAFNI Champion project presentation https://www.youtube.com/watch?v=4SAFLbTDobQ&t=5s
