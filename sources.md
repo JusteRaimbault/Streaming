@@ -1,4 +1,12 @@
 
+
+# 2021
+
+MinecraftExplorer https://www.twitch.tv/videos/909914341
+
+Applied Urban Modeling global workshop https://youtu.be/jTxsr--scJk?t=4376
+=> todo com tw
+
 # 2020
 
 CCS 2020 https://www.youtube.com/watch?v=T_OxBlORVT0
