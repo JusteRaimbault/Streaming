@@ -2,6 +2,11 @@
 
 # 2021
 
+
+Dafni roadshow https://www.youtube.com/playlist?list=PLVfY7gcVRgVcmml6TmKIT1vgsEXS6jn-Q
+https://www.youtube.com/watch?v=QBjmGEjL-MU&list=PLVfY7gcVRgVcmml6TmKIT1vgsEXS6jn-Q&index=8
+
+
 MinecraftExplorer https://www.twitch.tv/videos/909914341
 
 Applied Urban Modeling global workshop https://youtu.be/jTxsr--scJk?t=4376
@@ -14,6 +19,8 @@ CCS 2020 https://www.youtube.com/watch?v=T_OxBlORVT0
 MLIS 2020 https://www.twitch.tv/videos/783456294
 
 DAFNI Champion project presentation https://www.youtube.com/watch?v=4SAFLbTDobQ&t=5s
+
+GISRUK 2020 https://www.youtube.com/watch?v=_gsZMIrPSI8
 
 ALife 2020: https://www.youtube.com/watch?v=dDqhe54IsMo
 
