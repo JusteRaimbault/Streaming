@@ -2,6 +2,9 @@
 
 # 2021
 
+FRCCS https://www.twitch.tv/videos/1043256682
+
+GISRUK 2021 https://www.youtube.com/watch?v=39_X7sqKPfg
 
 Dafni roadshow https://www.youtube.com/playlist?list=PLVfY7gcVRgVcmml6TmKIT1vgsEXS6jn-Q
 https://www.youtube.com/watch?v=QBjmGEjL-MU&list=PLVfY7gcVRgVcmml6TmKIT1vgsEXS6jn-Q&index=8
