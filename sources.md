@@ -2,6 +2,9 @@
 
 # 2021
 
+
+ECTQG 2021 https://www.youtube.com/channel/UCOmGd5uoZxJ4fBKxPIZ-aQA/videos
+
 FRCCS https://www.twitch.tv/videos/1043256682
 
 GISRUK 2021 https://www.youtube.com/watch?v=39_X7sqKPfg
